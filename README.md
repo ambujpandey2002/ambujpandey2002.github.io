@@ -98,7 +98,7 @@ CRICKET
 ![84516217-194d2680-aceb-11ea-8c68-0d9179e91bf1](https://user-images.githubusercontent.com/66781609/84559941-d1ff7e00-ad5c-11ea-8290-9944f3ac13cc.gif)
 
 
-LOVE SONGS
+ROMANTIC SONGS
 
 ![84515927-bbb8da00-acea-11ea-898d-c50c94388aca](https://user-images.githubusercontent.com/66781609/84559974-112dcf00-ad5d-11ea-86db-821f1af3f4c1.gif)
 
